@@ -1,1 +1,1 @@
-# 🍳 Please give us a moment to cook up some yummy products
+# 🧊 Please give us a moment to finish thawing!
